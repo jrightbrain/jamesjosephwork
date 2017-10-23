@@ -1,2 +1,0 @@
-# jamesjosephwork
-Portfolio
